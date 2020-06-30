@@ -10,3 +10,7 @@ particular success in Germany and Scandinavia.
 * Facility Manager
 * Language Teachter
 * Real Estate Agent
+
+As Simon Beckett said:
+
+> Die Menschen sind zu allem fähig, wenn sie Angst haben.
